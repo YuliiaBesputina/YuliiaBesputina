@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @YuliiaBesputina. I'm Software QA Automation Engineer from Seattle, Washington, US
